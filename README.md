@@ -8,4 +8,21 @@
  - At 12:20 :- Engineer Rakesh Kumar (Alumni of 1991 batch)gave us speech.
 -Then, Chief engineer at municipal corporation Shri Ravinder Garg gave us speech.
 - *"Though i was a bit nervous in the beginning ,by the end i felt confident and relieved that my college life will be both interesting and challenging ."
-- "Overall it was great experience . All the professors and seniors, whome were working in induction facilities ,were very humble towards us."
+- "Overall it was great experience . All the professors and seniors, whome were working in induction facilities ,were very humble towards 
+# Day 2 of induction programme
+-Another beautiful day, where seniors were volunteering very diligently .
+- From 9:30 to 10:30:- Seniors took a proficiency test of english fom us in room no. 113.The test of english was not that much complex , it was easy.
+- From 10:30 to 11:30 :-There's a another proficiency test of maths , which i felt little bit difficult than english proficiency test .
+- From  11:30 to 1:00 :- BREAK!
+- I made some friends at college .They gave accompany to me in the whole break.They were very humble towards me .
+- From 1:00 to 2:00 :-At Auditorium
+- Expert lecture by Dr.Arshdeep Singh on "Food :A povital role in  student's overall  wellness.
+- Sir told us to take nutrients . He talked about adulterated food .Then students ask about their doubts and sir answered it with  very detail.
+- From 2:00 to 3:00  :- venue same as previous
+- There was session by causmic club.
+- Firstly to entertain us a senoior sang song "naina by  diljit dosanjh and badshah" .He sang it very beautifully ,every students in auditorium sang it with him .It was a whole moment for me .
+- Then head of causmic club ,gave us information towards from where we can check our mentors and about exam details in the website of gndec.then we got information about buddyforstudy app  which is a scholarship app .Seniors told us login to this app so we logined it .They also told us about github where we had to prepare our induction programme assignment they mentored us how to login it and how to make repositary in it.
+- So this was about the second day of induction programme in which i saw how  my seniors are responsible towards their work.Special shoutout to causmic club team who were organising this induction programme.
+# Day 3 of induction programme
+-From 9:00 to 11:00 :- Expert lecture by Dr.Jaswinder Singh short for "JaswinS"Lecturer in Physics 
+At Auditorium :-
