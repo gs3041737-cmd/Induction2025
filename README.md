@@ -36,3 +36,13 @@
 - From 12:30 to 2:30:-At Auditorium :-A senior did great job on guitar and played "Heeriye by Arijit Singh" on his guitar. This was just to entertain us.
 - Then Dr. Priya Darshani mam gave lecture on human universal values. It was second session on this topic.
   -From 2:30 to 3:30:- There was a sesssion by causmic club on laptops .
+# Day 5 of Induction Programme 
+- Another day started with lectures .
+- From 9:30-10:30 :- I attended the class of BEEE which was conducted by prof.Ranvir Kaur(EE).
+- From 10:30-11:30:-Seniors took our p2p class in which they furtherly told about cpp language.
+- From 11:30-12:30:- Break!
+- From 12:30 -2:00:- At Auditorium:- Lecture by Dr. Arvind Dingra (Director - STEM and Incharge -TAC)
+- From 2:00-3:00:- S.Gucharan Singh ( chief Guest ) Firstly He greeted us with sat shri akal Then teached us teaching of Gur Nanak Dev Ji.He talked that he is also studied from here many years ago but now out of  8 authorities he is one from them .He gave the knowledge of education said ,"Education is the third eye of humanity." He praised about gndec college .He told us that this is our best decision to took admission in this college.They told us to to respect teachers . Lastly ,he gave blessings for our college journey.
+- From 3:00-4:00:- Dr. Lakhvir Singh Khanna ( Incharge of CML)
+- He told that this cml department is for creative students and is also for boosting students confidence . In this students shows their creativity by doing coding and editing . Some students also select for eventa managing that boost their confidence .He gave us QR code of their every sicial media .He told that this  department is for holistic development of students.
+# Day 6 of Induction Programme 
