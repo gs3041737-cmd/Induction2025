@@ -30,7 +30,7 @@
 - From 11:00 to 1:00:-( Venue same as previous) Expert lecture by Dr. Priya Darshani mam on Universal Human Values .
 - Mam told us about how we  should balance our physical facility,relationships,right understandings in our life. we should give time to every activity .why are we studying btech ?asked mam.students answered ,"to earn money",but mam negated with it. Mam said we should study for happiness. Money is exitation thing but we should achieved happiness in oue life .Mam also told difference between permanent and impermanent thing. Mam explained happiness is permanent and exitation is impermanent  in our life .mam gave us example about right understanding :- if someone speaks harshly ,right understanding helps us see they may be stressed , rather than assuming they hate us.In relationships,we should spend our some time with our parents.In physical facilities we should exercise or play some outdoors games for two hours . Lastly ,mam gave us assignment in which we have to write how  much time we should give to physical facility , relationships and right understandings.
 # Day 4  of induction programme                                                                                                            
--From 9:30 to 10:30:-We had chemistry lecture by Prof. Rajvir Kaur at Tcc Seminar Hall.
+- From 9:30 to 10:30:-We had chemistry lecture by Prof. Rajvir Kaur at Tcc Seminar Hall.
 - From 10:30 to11:30:-There's a  p2p lecture by our seniors in which they told basics of cpp programming.
 - From 11:30 to 12:30 :- Break!
 - From 12:30 to 2:30:-At Auditorium :-A senior did great job on guitar and played "Heeriye by Arijit Singh" on his guitar. This was just to entertain us.
@@ -46,3 +46,13 @@
 - From 3:00-4:00:- Dr. Lakhvir Singh Khanna ( Incharge of CML)
 - He told that this cml department is for creative students and is also for boosting students confidence . In this students shows their creativity by doing coding and editing . Some students also select for eventa managing that boost their confidence .He gave us QR code of their every sicial media .He told that this  department is for holistic development of students.
 # Day 6 of Induction Programme 
+- From 9:30-10:30:-At Auditorium :-Lecture by Dr. Amit Khangra (Incharge of DMC)
+- He told about Data Science Club of college in which students need editing and coding skills ,we had to creative like making templates on canva.He shared  QR code of every social media of their department .He showed us many creative things which was done by our seniors snd their students .Two seniors were along him one was showing us  pictures on projector and second was giving QR code print. Sir showed us creative vedio of college which was made by that second senior. It was iconic.Sir also told us to take part short vedio making competition .
+- From 10:30-11:30:- Lecture by Dr.Parminder Singh ( Dean welffare - Students)
+- From 11:30 - 12:00 :- Lecture by Dr. Randhir Singh ( Conduct of Examination)
+- He joked that basically his job is to made students scare.
+- He said this line because he is about to told us related  to examinations like how we can be detained from paper and we have to pay 15000 to give repair exam .He  also told us about various scholarships that is conducts in this college.
+- "So this was the ending of our induction days in which i got to know about my college facilities, how different - different department works ,how can i reach them .I got to know about causmic club and many more clubs but i felt that causmic cmubs is the one of the best club and the volunteers who are working in this club are kind ,humble and diligent."
+- These induction days were very enjoyable and there was not a day which could be boring.I  joy every day with my friends and by interactive session with the professors in the auditorium.
+- 
+  
